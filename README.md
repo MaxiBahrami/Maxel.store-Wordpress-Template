@@ -1,0 +1,1 @@
+# Maxel.store-Wordpress-Template
